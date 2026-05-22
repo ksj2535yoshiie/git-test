@@ -12,3 +12,4 @@ Gitの勉強
  (　･･)
 c(,_ｕｕ
 
+isakaiA AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
